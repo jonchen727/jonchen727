@@ -1,4 +1,4 @@
-- ☁️ infrastructure engineer
+- ☁️ Seniro Cloud Infrastructure Engineer
 - 🎓chemical engineer
 - 🧗climber
 - 🏂snowboarder
