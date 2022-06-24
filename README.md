@@ -1,4 +1,4 @@
-- ☁️ Seniro Cloud Infrastructure Engineer
+- ☁️ Senior Cloud Infrastructure Engineer
 - 🎓chemical engineer
 - 🧗climber
 - 🏂snowboarder
